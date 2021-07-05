@@ -1,1 +1,1 @@
-# github more like gitgud amirite
+# github more like gitgud
